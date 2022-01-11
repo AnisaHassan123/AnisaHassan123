@@ -11,7 +11,7 @@
 - I'm from Toronto, Canada,  born & raised.
 - I sit on the committee for the Neuroscience Commitee of Canada ⚖️
 - I speak English, Swahili, Somali and Arabic (a bit)
-- I love to intersect my passion and love of Quranic Studies into my work. And i am currently in the process of conducting some cool work on what the Quran can tell us about our brain. Coming soon! 🧡
+- I love to intersect my passion and love of Quranic Studies into my work. And I am currently in the process of conducting some cool work on what the Quran can tell us about our brain. Coming soon! 🧡
 
 
 ## I’m currently learning ...
