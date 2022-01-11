@@ -1,4 +1,4 @@
-- 👋 Hi, I’m AnisaHassan 
+- 👋 Hi, I’m Anisa Hassan
 <h4 align="center">
     I'm a Masters Student in Neuromechanics, Researcher, Veracious Reader & Technologist.✨
 </h4>
