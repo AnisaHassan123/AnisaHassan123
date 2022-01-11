@@ -7,11 +7,11 @@
 
 - I'm a Black Muslim Women!
 - I do research in Memory, Recall and Motor Control! 🧠
-- I interested in starting my tech career journey as a Data Scientist by utilizing some of the software and techniques ive gained from my work. 👩🏾‍💻
+- I'm interested in starting my tech career journey as a Data Scientist by utilizing some of the software and techniques ive gained over the years from my work. 👩🏾‍💻
 - I'm from Toronto, Canada,  born & raised.
-- I sit on the committee for Neuroscience Canada ⚖️
+- I sit on the committee for the Neuroscience Commitee of Canada ⚖️
 - I speak English, Swahili, Somali and Arabic (a bit)
-- I love to interect my passion and love of Quranic Studies into my work. And in the process of conducting some cool work on what the Quran can tell us about our brain. Coming soon! 🧡
+- I love to intersect my passion and love of Quranic Studies into my work. And i am currently in the process of conducting some cool work on what the Quran can tell us about our brain. Coming soon! 🧡
 
 
 ## I’m currently learning ...
